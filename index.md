@@ -1,19 +1,7 @@
-## Welcome to Nark
+## Welcome to Upsy
 
 
-### noun
-1.
-BRITISH
-a police informer.
+### interjection.
 
-"I'm not a copper's nark"
+ —used to express reassurance typically to a small child when it is being lifted.
 
-2.
-AUSTRALIAN • NEW ZEALAND
-an annoying person or thing.
-
-
-### verb
-BRITISH
-cause annoyance to.
-"women like her nark me"
